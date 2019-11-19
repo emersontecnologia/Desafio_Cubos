@@ -1,1 +1,1 @@
-Infelismente o desafio não foi concluído.
+Infelizmente o desafio não foi concluído.
